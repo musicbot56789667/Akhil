@@ -1,9 +1,9 @@
 <h2 align="center">
-    ──「 ⏤͟͞ 𝐂𝐇𝐎𝐂𝐎𝐋𝐀𝐓𝐘ᥫ᭡፝֟𝐌𝐔𝐒𝐈𝐂™⏤͟͞ 」──
+    ──「 ╚»𝐓 ꭙ 𝐅™«╝ ❰𝐌𝐔𝐒𝐈𝐂❱ 」──
 </h2>
 
 <p align="center">
-  <img src="https://graph.org/file/a0ddf6c919b15fe400960.jpg">
+  <img src="https://graph.org/file/0bf4d42530e5e8445d9eb.jpg">
 </p>
 
 <p align="center">
